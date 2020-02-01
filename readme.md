@@ -22,4 +22,5 @@ Last night I dreamt about eating in these restaurants
 
 ### Contact
 
-The best way to get in toouch with me is [on Twitter](https://twitter.com/bogdannepyyvoda
+The best way to get in toouch with me is [on Twitter](https://twitter.com/bogdannepyyvoda)
+
